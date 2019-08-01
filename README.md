@@ -1,0 +1,1 @@
+# spot-challenge-intern
